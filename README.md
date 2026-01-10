@@ -21,3 +21,4 @@ Direct links to artists that make wallpapers I personally use
 ### Background painters/Concept Artists:
 - [Lorenzo Lanfranconi](https://www.artstation.com/lorenzolanfranconi)
 - [Alena Aenami](https://aenamiart.artstation.com/)
+- [嶋田 清香 / Sh1m4da](https://x.com/Sh1M4da)
