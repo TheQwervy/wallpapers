@@ -1,5 +1,5 @@
 # Wallpapers
-Direct links to artists that make wallpapers I personally use
+Direct links to artists that make wallpapers I personally use. If you like their work please support them in any way that you can.
 
 ## Animated:
 ### Pixel:
@@ -8,7 +8,8 @@ Direct links to artists that make wallpapers I personally use
 - [Pixel Jeff](https://www.artstation.com/pixeljeff1995)
 - [かなしの / kanashino](https://www.pixiv.net/en/users/29180214)
 - [Kenze Wee](https://seppuku_doge.artstation.com/)
-- [waneella](https://waneella.com/)
+- [waneella](https://waneella.com/) / [Pixiv](https://www.pixiv.net/en/users/6555095)
+- [iroduku](https://www.pixiv.net/en/users/55831392)
 
 ## Static:
 ### Anime style:
@@ -17,6 +18,7 @@ Direct links to artists that make wallpapers I personally use
 - [Homutan](https://www.pixiv.net/en/users/58914348)
 - [mmAir](https://www.pixiv.net/en/users/39363802)
 - [Ryo Tagami](https://www.pixiv.net/en/users/1148741)
+- [fom](https://www.pixiv.net/en/users/2501902)
 
 ### Background painters/Concept Artists:
 - [Lorenzo Lanfranconi](https://www.artstation.com/lorenzolanfranconi)
