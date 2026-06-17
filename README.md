@@ -10,6 +10,7 @@ Direct links to artists that make wallpapers I personally use. If you like their
 - [Kenze Wee](https://seppuku_doge.artstation.com/)
 - [waneella](https://waneella.com/) / [Pixiv](https://www.pixiv.net/en/users/6555095)
 - [iroduku](https://www.pixiv.net/en/users/55831392)
+- [aleha_84](https://www.artstation.com/aleha)
 
 ## Static:
 ### Anime style:
