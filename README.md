@@ -11,6 +11,7 @@ Direct links to artists that make wallpapers I personally use. If you like their
 - [waneella](https://waneella.com/) / [Pixiv](https://www.pixiv.net/en/users/6555095)
 - [iroduku](https://www.pixiv.net/en/users/55831392)
 - [aleha_84](https://www.artstation.com/aleha)
+- [APO+](https://apolism.tumblr.com/) / [Twitter](https://x.com/APO_PLUS_)
 
 ## Static:
 ### Anime style:
